@@ -340,6 +340,13 @@ Example:
 **Rohan Pagare**
 
 📧 Email: [rohanpagare6616@gmail.com](mailto:rohanpagare6616@gmail.com)
+
+
+
+
 💼 LinkedIn: [https://linkedin.com/in/rohan-pagare-1bab0a2a9](https://linkedin.com/in/rohan-pagare-1bab0a2a9)
+
+
+
 💻 GitHub: [https://github.com/Rohan1-tech](https://github.com/Rohan1-tech)
 
